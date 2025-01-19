@@ -1,0 +1,2 @@
+# FunnyVPN
+Nuralfiya
